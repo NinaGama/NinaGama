@@ -9,4 +9,4 @@ meu nome é Karina Gama
 ### Você pode entrar em contato comigo 📞✉️:
 00001135384654sp@al.educacao.sp.gov.br
 
-![descrição do GIF](link GIF do Tenor)
+![](https://tenor.com/tj12RTlcA1R.gif)
