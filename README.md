@@ -10,5 +10,4 @@ meu nome é Karina Gama
 
 00001135384654sp@al.educacao.sp.gov.br
 
-![
-](https://tenor.com/pt-BR/view/hello-oi-gif-18166012)
+![](https://tenor.com/pt-BR/view/hello-oi-gif-18166012)
