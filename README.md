@@ -7,6 +7,7 @@ meu nome é Karina Gama
 - Utilizo esse espaço para minha organização e compartilhamento dos meus projetos desenvolvidos
 
 ### Você pode entrar em contato comigo 📞✉️:
+
 00001135384654sp@al.educacao.sp.gov.br
 
-![](https://tenor.com/pt-BR/view/quby-high-five-wave-pentol-qubysani-gif-19935273)
+![oii](https://tenor.com/pt-BR/view/hello-oi-gif-18166012)
